@@ -1,7 +1,6 @@
 # custom-cbd-cartridge-boxes
 <h1>How CBD Can Help You in Quitting Addiction?</h1>
 <p>In the last twenty years, scientists have done a lot of researches on cannabis-derived products. As a result of these studies, many new chemicals have been discovered inside these plants. The most prominent chemicals in the hemp plant have been found to be cannabinoids and terpenes. Cannabinoids are the chemicals that especially get scientists&rsquo; attention because of the way they act on the human body.</p>
-<p>&nbsp;</p>
 <p>There are hundreds of cannabinoids in the marijuana plant, but we know the most about CBD and THC. In fact, CBD was the cannabinoid ever discovered by the research of Dr. Mechoulam. Afterward, Tetrahydrocannabinol or THC was found.</p>
 <p>&nbsp;</p>
 <p>Both of these cannabinoids act on the Endocannabinoid system inside the body. Simply put, there are receptors throughout the body where cannabinoids act. You may be surprised to know the fact that the human body also makes cannabinoids. These are called endocannabinoids, and the cells make these chemicals for communicating signals.</p>
