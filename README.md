@@ -10,7 +10,7 @@
 <p>Most of the major researches in this line are done in the last twenty years. Now, the legal status of hemp and marijuana has changed in many parts of the world, which has opened the path for new researches. Among the two famous cannabinoids, CBD is the one catching a lot of attention because of the health benefits.</p>
 <p>&nbsp;</p>
 <h2>CBD Industry</h2>
-<p>There are many CBD products you can find in the market, and with more research on the benefits of CBD, these numbers are increasing. Among other products, CBD vape cartridges are one of the most famous. I used to work in a packaging making company, and <a href="https://uscbdboxes.com/cbd-cartridge-boxes/">the custom CBD cartridge box</a> packaging was the highest in demand of CBD packaging.</p>
+<p>There are many CBD products you can find in the market, and with more research on the benefits of CBD, these numbers are increasing. Among other products, CBD vape cartridges are one of the most famous. I used to work in a packaging making company, and <a href="https://impressionville.com/cbd-cartridge-packaging/">the custom CBD cartridge box</a> packaging was the highest in demand of CBD packaging.</p>
 <p>&nbsp;</p>
 <p>One of the biggest reasons for the popularity of CBD joints and vape cartridges is the fact that they can help with stress without causing any addiction. WHO has stated the fact that cannabidiol does not make you dependant. In contrast, a recent study by Dr. Yasmin Hurd has shown that CBD can be effective against addiction.</p>
 <p>&nbsp;</p>
